@@ -1,0 +1,2 @@
+# verev.k
+fotografia
